@@ -1,2 +1,1 @@
-# alfred
-The Family Timekeeper 
+[prepared README.md content from attached file file:72]

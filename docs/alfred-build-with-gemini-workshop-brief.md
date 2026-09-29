@@ -1,0 +1,1 @@
+[prepared workshop brief content from attached file file:71]
